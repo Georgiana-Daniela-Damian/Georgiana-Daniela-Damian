@@ -14,3 +14,5 @@ Limbi și instrumente:
 ![image](https://github.com/user-attachments/assets/a3f4f552-d26e-456d-8dfc-31d62662603c)
 ![image](https://github.com/user-attachments/assets/91c169ef-812d-4cf6-93d7-d1fa2e03946c)
 
+
+
