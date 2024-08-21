@@ -7,8 +7,8 @@
 
 Limbi și instrumente:
 
-![image](https://github.com/user-attachments/assets/5a23e37c-6069-496c-a8cc-71e1d7ff3fd5)
-![image](https://github.com/user-attachments/assets/ed54ab05-1007-4b01-90af-4569a9caaf09)
-![image](https://github.com/user-attachments/assets/3203acd5-661b-4e3d-99f2-de7ccc51ab70)
+![image](https://github.com/user-attachments/assets/af196503-606e-4bcb-99e9-202a64799b5e)
+![image](https://github.com/user-attachments/assets/56b1048d-e1b6-475b-badb-ea6a7632a88d)
+![image](https://github.com/user-attachments/assets/3739a426-b744-4558-8da6-5fabd55fecb2)
 ![image](https://github.com/user-attachments/assets/a3f4f552-d26e-456d-8dfc-31d62662603c)
 ![image](https://github.com/user-attachments/assets/91c169ef-812d-4cf6-93d7-d1fa2e03946c)
